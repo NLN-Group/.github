@@ -1,2 +1,0 @@
-# NLN Group
-.
